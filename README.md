@@ -1,1 +1,0 @@
-# jonathangerickson.github.io
